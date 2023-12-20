@@ -1,1 +1,1 @@
-https://mrmijanjoy.github.io/Bitris
+https://mrmijanjoy.github.io/bitris
